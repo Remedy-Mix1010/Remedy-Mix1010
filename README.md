@@ -1,6 +1,5 @@
-Hi I am Ika. 
-I'm an almost wild teen. Yes Lego Ninjago Movie quote right there,
-I really like anime. Like I ✨LOVE✨ anime. 
-I love Lego Ninjago too, cause its ✨Fabulous✨, and also because it has good tea 🍵😏💅
-And yea, that's classic me for you.
-✨AU REVOIR✨
+Hey, the name's Skyttlz. 
+I'm a wild teen - (reference to Lego Ninjago Movie Zane) and the reason I have GitHub is cause my coding school made me make an account. 
+I like anime and Lego Ninjago, though I'm really sad because Crystallized is the end of OG Ninjago. 
+So yeah. 
+Bye. 
